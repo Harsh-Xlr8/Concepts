@@ -6,8 +6,8 @@
 
 In this video, what was the most interesting story or idea for you?
 
-**Ans:** The most interesting idea is to make a tiny after you do something which is already a habit of yours. The tiny habit should be an easy task to do so that it does not need very high motivation. Eventually, with time, this tiny habit will grow and will lead to an outcome that you need from that habit.
-For example, the idea of doing two push-ups after you use the restroom is a great way to bring push-ups into your daily habit.
+**Ans:** The most interesting idea is to make a tiny habit after you do something which is already a habit of yours. The tiny habit should be an easy task to do so that it does not need very high motivation. Eventually, with time, this tiny habit will grow and will lead to an outcome that you need from that habit.
+For example, the idea of doing two push-ups after you take a rest and start again, so this is a great way to bring push-ups into your daily habit.
 
 ## Tiny Habits by BJ Fogg - Core Message
 
